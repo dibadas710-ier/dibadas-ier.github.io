@@ -1,1 +1,0 @@
-# dibadas-ier.github.io
